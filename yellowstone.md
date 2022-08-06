@@ -29,7 +29,7 @@ from different viewpoints.
 
 The Grand Prismatic Spring is the largest hot spring in the United States and one of the top sites to see in Yellowstone National Park. Approximately **_250 by 300 feet in size and around 160 feet deep_**. The rainbow waters of the Grand Prismatic are what make it fascinating.
 
-## Yellowstone Lake
+## The Yellowstone Lake
 
 ![An image of Yellowstone Lake](https://maketimetoseetheworld.com/wp-content/uploads/2017/09/yellowstone-lake-52284_640.jpg.webp)
 
