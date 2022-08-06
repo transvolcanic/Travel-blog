@@ -23,6 +23,12 @@ country.
 Hike along the various trails in the Grand Canyon of the Yellowstone to view the Upper and Lower falls  
 from different viewpoints.
 
+## Grand Prismatic Spring
+
+![An image of Grand Prismatic Spring](https://maketimetoseetheworld.com/wp-content/uploads/2017/09/Yellowstone-grand-prismatic-720x418.jpg.webp)
+
+
+
 
 
 
