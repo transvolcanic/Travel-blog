@@ -1,5 +1,12 @@
 # Things to see in Yellowstone National Park
 
+> "Walk away quietly in any direction and taste the 
+> freedom of the mountaineer"  
+>
+> ### -John Muir
+>
+>
+
 ## Old Faithful
 
 
