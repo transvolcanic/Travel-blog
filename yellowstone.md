@@ -44,6 +44,8 @@ The Grand Prismatic Spring is the largest hot spring in the United States and on
 
 ![An image of Yellowstone Lake](https://maketimetoseetheworld.com/wp-content/uploads/2017/09/yellowstone-lake-52284_640.jpg.webp)
 
+Yellowstone lake is the largest lake in the park and is the largest high-elevation lake in North America. The West Thumb Geyser Basin along the south side of the lake is the spot to find geysers, fumaroles and hot springs on the shore and in the lake.
+***
 
 
 
@@ -52,6 +54,8 @@ The Grand Prismatic Spring is the largest hot spring in the United States and on
 
 
 
+
+[1]: https://www.nps.gov/yell/learn/nature/yellowstone-lake.htm
 
 
 
